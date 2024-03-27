@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: D&D Wikis
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+[[Player's Guide|Prótovíos Astéri Player's Guide]]

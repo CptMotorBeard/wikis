@@ -1,0 +1,6 @@
+#### Occupied Planets
+- Sigma (Capital)
+- Phi
+- Chi
+
+Overall the Pilthash Clan are kind of seen as assholes. Their occupied planets are quite lawless, and strength is the only real rule. [[Einar's Party#Ignatius Pilthash|Ignatius Pilthash]] is pretty publicly criticized for his behavior, but his and the rest of his clan have very real strength that allows it. [[Einar's Party#Ignatius Pilthash|Ignatius Pilthash]] is generally seen as the most active of [[Einar's Party]] these days. He regularly stalks the various planets looking for any woman who might give him a strong heir. Although not seen as a glamorous position, all of his wives who birth a child that survives are treated extremely well. Disrespecting one of his wives is seen as a worse taboo then disrespecting one of [[Einar's Warriors]]. With [[Einar's Warriors]] you only might be killed by a member of [[Notable Groups#Einar's Shadow|Einar's Shadow]], but if you disrespect a wife, you will 100% be murdered in a horrible fashion by [[Einar's Party#Ignatius Pilthash|Ignatius Pilthash]] himself.

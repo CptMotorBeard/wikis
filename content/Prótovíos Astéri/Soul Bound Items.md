@@ -1,0 +1,5 @@
+Soul bound items are items which have fused to ones soul. While the owner is alive, the soul bound item cannot be used by anyone else. Typically this is achieved by only the owner being physically capable of touching the item. Anyone else attempting to interact with the item will pass right though.
+
+There are two types of soul bound items. The first type has its existence linked to the owner. When the owner dies, the item ceases to exist. [[Dungeons#Key|Dungeon keys]] fall into this category. The second type unbinds with its owner as they die and bind to the next individual to come into possession of them. The [[Shards of Mara]] all fall into this category.
+
+Not much is known about the inner workings of soul bound items, but there is quite a bit of research being done on them within a division of the [[Smith Clan]].

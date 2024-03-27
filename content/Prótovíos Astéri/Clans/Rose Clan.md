@@ -1,0 +1,4 @@
+#### Occupied Planets
+- Alpha (Capital)
+
+Despite being the strongest in [[Einar's Party]], after [[Amalric Einar|Einar]] himself, [[Einar's Party#Rose|Rose]] only ever wished to rule over a single planet. Alpha is a very peaceful planet and its inhabitants are all quite pleasant. It's unknown of what the relationship between the current leaders of the clan have with [[Einar's Party#Rose|Rose]], but since he hasn't been seen in basically forever, they are the current rulers of Alpha. Various policies are in place on the planet to make sure everyone can work and everyone can eat. Cities are kept clean and peaceful and, although rare, violent crime is dealt with by immediate punishment. The policing force, known as judges, have developed specialized magic over the years to make sure no crime goes unsolved and that the guilty are always punished.

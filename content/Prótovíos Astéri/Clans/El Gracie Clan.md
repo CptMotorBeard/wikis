@@ -1,0 +1,5 @@
+#### Occupied Planets
+- Beta (Capital)
+- Kappa
+
+The El Gracie Clan is the smallest of the great clans. [[Einar's Party#Jewel El Gracie|Jewel El Gracie]] fell into a deep depression after losing so much in the Omega dungeon and did not start running the clan until years later. Some see the El Gracie clan as a vassal of the [[Lamberti Clan]], but those in the El Gracie clan are very prideful of the fact that they are indeed one of the great clans. The El Gracie clan mostly does work advancing medical research, with [[Einar's Party#Jewel El Gracie|Jewel El Gracie]] hoping that the research can determine why the injuries her party suffered were unhealable. Most planets have an El Gracie clan embassy, despite being on the smaller size, their healing skills are second to none. These embassy double as hospitals for the worst of injuries.

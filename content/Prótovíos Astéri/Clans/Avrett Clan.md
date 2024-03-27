@@ -1,0 +1,5 @@
+#### Occupied Planets
+- Gamma
+- Omicron (Capital)
+
+[[Einar's Party#January Avrett|January Avrett]] has a strange bloodline, in which her family will only ever birth a single daughter and that daughter will inherit mostly the genes from the mother. It is said that each generation takes only the absolute strongest parts of the father to become stronger overall. This has held true since [[Einar's Party#January Avrett|January Avrett]], but nobody knows if it was true before her. The capital of the Avrett clan is Omicron, and the temperature of the planet has dropped several degrees since it was conquered. The Avrett castle is made entirely of ice and is an incredibly beautiful work of art. It's a popular destination for couples to visit, despite the cold. [[Einar's Party#January Avrett|January Avrett]] is rarely seen around the castle, and the one mostly in charge these days is [[Notable Characters#March Einar|March Einar]]. Despite being one of [[Einar's Warriors]], she still participates actively in running the clan.
