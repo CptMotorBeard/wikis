@@ -1,3 +1,5 @@
+#### Argus Pilthash
+One of the guides working for the [[Pilthash Clan]]. In charge of bringing new mages to [[Planetary Cluster#Zero|Zero]] in order for them to obtain a [[Dungeons#Key|key]]. Those who do well in the challenge will continue to receive his guidance as well as contracts from the [[Pilthash Clan]]. The main job of a guide is to eventually recruit strong individuals for their clan.
 #### Arianna Sault
 Current number 3 in the [[Rankings|rankings]]. She is the owner of the [[Shards of Mara|Shard of Conceit]] as well as the head and founder of [[Notable Groups#Dragon's Wing Tavern|Dragon's Wing]].
 #### Hector
